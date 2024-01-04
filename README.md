@@ -1,13 +1,14 @@
 
-黑料网最新地址更新（12/23更）
+黑料网最新地址更新（1/4更）
 
-🔥黑料网大陆入口  https://hl24.co
+🔥黑料网大陆入口  https://hl25.co
 🔥黑料永久入口  https://155.fun
 🔥黑料永久主页  https://18hlw.com
-🔥黑料App地址  https://67.deuynp.com
+🔥黑料App地址  https://309a.hwwkxh.com
 🔥官方Q社群  http://d.ielsqqwrpj61.cn/s/KB36
-🔥18色导航   https://ac5.tbirsv.com
+🔥18色导航    https://31.krqghb.com
 🔥黑料官方推特  https://twitter.com/heiliao8
+
 
 👇👇👇👇👇👇👇👇👇👇👇👇👇👇
 
